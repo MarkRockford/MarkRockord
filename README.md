@@ -2,7 +2,7 @@
 - 👀 I’m interested in отдых
 - 🌱 I’m currently learning стихи Пушкина
 - 💞️ I’m looking to collaborate on Oscorp Industries
-- 📫 How to reach me what??
+- 📫 How to reach me: tumbler or bluesky
 - 😄 Pronouns: русский я
 - ⚡ Fun fact: билли джин дристал в кувшин
 
